@@ -12,7 +12,7 @@
 
 - 🎮 Passionate about games
 
-<br><br>
+<br><br><br><br><br><br><br><br><br><br><br><br>
 
 ## 🛠 &nbsp;Tech Stack
 
